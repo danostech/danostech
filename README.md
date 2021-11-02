@@ -1,2 +1,2 @@
 ### Dan
-Programmer, Dad, Husband.
+Dad, Husband, Programmer.
